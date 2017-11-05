@@ -1,6 +1,6 @@
 #Apologetics
 
-Q. Can a person with a reasoning behaviour question the church? 
+Q. CAN A PERSON WITH A REASONING BEHAVIOUR QUESTION THE CHURCH? 
 A.
 I believe what you mean by your question is - can we question what the church teaches us and it what the church ask us to do?
 Of course you can and rather you must. Asking questions helps us grow in our reasoning and adds meaning to what we do. In fact a great way to study our faith is by asking questions and finding out the answers. When you do this it will help you add a whole new dimension to your faith and make you fall in love with Jesus. So we encourage you to ask as many questions as you need to grow in your faith. The Church is always willing and ready to help you. 
